@@ -1,0 +1,3 @@
+lawda bc
+
+password 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
